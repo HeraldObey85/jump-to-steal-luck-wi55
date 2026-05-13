@@ -1,4 +1,4 @@
-#  
+#  jump to steal lucky blocks Scripts stealth is the best jump to steal lucky blocks Script, featuring custom skins and invisibility. Safe and powerful
 
 
 
